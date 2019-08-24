@@ -16,4 +16,4 @@ Hongik university.
 
 [eve8108-@hanmail.net](mailto:eve8108-@hanmail.net)
 
-[2jeongfeel](https:://www.instagram.com/2jeongfeel/)
+[2jeongfeel](https:://www.instagram.com/gixeon/)
